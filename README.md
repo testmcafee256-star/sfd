@@ -1,4 +1,2 @@
 # sfdfjdtk
-shdfrhjeru65
-srdhjrdfj
-bhjuokisdf-[pigerihjhdsp
+i can able to edit after policy i appling 
